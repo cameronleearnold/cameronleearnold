@@ -1,4 +1,4 @@
-OSU 27' CSE
+OSU '27 CSE
 
 Open to early career opportunities!
 
